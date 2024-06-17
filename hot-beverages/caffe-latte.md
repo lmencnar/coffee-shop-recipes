@@ -25,8 +25,8 @@
 
 ### Step 4
 
-- Gently pour the steamed milk into the brewed coffee while holding back the milk foam from glass. Main.
+- Feat 1 - Gently pour the steamed milk into the brewed coffee while holding back the milk foam from glass. Main.
 
 ### Step 5
 
-- Top with the thin layer of milk foam remaining in the container.
+- Feat 1 - Top with the thin layer of milk foam remaining in the container.
